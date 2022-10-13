@@ -1,2 +1,2 @@
 # elizabethjimenz.github.io
-Portafolio de Clasw
+Portafolio de Clase
